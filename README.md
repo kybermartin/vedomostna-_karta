@@ -1,0 +1,1 @@
+# vedomostna-_karta
